@@ -11,6 +11,10 @@
 </p>
 
 <p align="center">
+   or if you're too lazy to call me by those two aliases just call me cj yeah like c and j
+</p>
+
+<p align="center">
  audhd   &   dyslexia 
 </p>
 
