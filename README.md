@@ -7,6 +7,10 @@
 </p>
 
 <p align="center">
+   male   &   aroace
+</p>
+
+<p align="center">
    im not interested in having a relationship with anyone, if i do flirt its always jokingly and never meaning any real romance 
 </p>
 
